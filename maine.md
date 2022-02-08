@@ -9,4 +9,8 @@
 
 ---
 ### *Maine* attraction
-Lobster ![Lobster](https://duckduckgo.com/?q=lobster&ia=images&iax=images&iai=https%3A%2F%2Fwww.visitcornwall.com%2Fsites%2Fdefault%2Ffiles%2Fproduct_image%2Fimage_1_1.jpg)
+Maine is most definitely known for its lobster! However, Maine has much more to offer ranging from beautiful beaches
+
+to breath taking trails and Moosey wildlife.
+
+---
