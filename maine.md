@@ -13,4 +13,4 @@ Maine is most definitely known for its lobster! However, Maine has much more to 
 
 to breath taking trails and Moosey wildlife.
 
----
+![Lobster](https://www.gannett-cdn.com/presto/2019/07/09/PDTF/ee5c3d9b-7427-455c-a637-c4381e55f0d1-Hazel_Lobster_Pound.jpg?crop=5185,2917,x0,y27&width=3200&height=1680&fit=bounds)
